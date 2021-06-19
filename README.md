@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Swati-01 
+- 👋 Hi there, I’m @Swati-01 
 - 📫 How to reach me **swatijindal01@gmail.com**
 - 👀 Fun Fact:- I love to draw in my free time. 
 <!---
